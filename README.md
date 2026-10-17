@@ -1,0 +1,1 @@
+# szkol19_21_py_avg
